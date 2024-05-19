@@ -14,4 +14,6 @@ Jelovnik je prepun vječnih talijanskih klasika, od više vrsta tjestenina, doma
  
  Cijeli prostor nove Scarpette odiše Rimskim štihom prevladavajući zelenim, zlatnim i bakreno smeđim tonovima, dok je strop osvježen puzavcima, a na podu možemo primijetiti pravi kamen u bojama koji dominira prostorom. U glavnom dijelu prostora nalazi se otvoreni šank koji može ugostiti 50-ak ljudi, a bočno se nalaze i opredjeljenja sa separeima za one koji žele malo privatnosti.
 
+
+
  ![Interijer](https://www.journal.hr/wp-content/uploads/2022/10/Scarpetta5-768x614.jpg)
