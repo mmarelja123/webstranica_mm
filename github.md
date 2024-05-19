@@ -8,3 +8,5 @@ Jelovnik je prepun vječnih talijanskih klasika, od više vrsta tjestenina, doma
 Zanimljiv naziv ovog restorana izvedeno je iz talijanskog izraza “fare la scarpetta“, što znači uživati u obroku do posljednjeg zalogaja, čin koji označava čišćenje tanjura s komadom kruha, kod nas poznato kao i sakupljanje toča.
 
 Jelovnik je prepun vječnih talijanskih klasika, od više vrsta tjestenina, domaćih njoka i raviola, predjela, rižota, preko mesa i ribe do deserata rađenih s posebnom pažnjom. Sva jela iz njihove kuhinje rađena su po tradicionalnim i talijanskim receptima i namirnicama iz italije. Talijanske tjestenine, parmezan, mozzarella, burrata, minestrone i carpaccio toliko su opća mjesta globalnog restoranskog vokabulara da ih možemo sažeti samo pod zajedničkom edigom talijanske kuhinje.
+
+ ![Talijanski specijaliteti restorana](https://gastro.24sata.hr/media/img/e2/40/8d518b4c9a21fa81ff06.jpeg)
