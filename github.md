@@ -10,3 +10,8 @@ Zanimljiv naziv ovog restorana izvedeno je iz talijanskog izraza “fare la scar
 Jelovnik je prepun vječnih talijanskih klasika, od više vrsta tjestenina, domaćih njoka i raviola, predjela, rižota, preko mesa i ribe do deserata rađenih s posebnom pažnjom. Sva jela iz njihove kuhinje rađena su po tradicionalnim i talijanskim receptima i namirnicama iz italije. Talijanske tjestenine, parmezan, mozzarella, burrata, minestrone i carpaccio toliko su opća mjesta globalnog restoranskog vokabulara da ih možemo sažeti samo pod zajedničkom edigom talijanske kuhinje.
 
  ![Talijanski specijaliteti restorana](https://gastro.24sata.hr/media/img/e2/40/8d518b4c9a21fa81ff06.jpeg)
+
+ 
+ Cijeli prostor nove Scarpette odiše Rimskim štihom prevladavajući zelenim, zlatnim i bakreno smeđim tonovima, dok je strop osvježen puzavcima, a na podu možemo primijetiti pravi kamen u bojama koji dominira prostorom. U glavnom dijelu prostora nalazi se otvoreni šank koji može ugostiti 50-ak ljudi, a bočno se nalaze i opredjeljenja sa separeima za one koji žele malo privatnosti.
+
+ ![Interijer](https://www.journal.hr/wp-content/uploads/2022/10/Scarpetta5-768x614.jpg)
